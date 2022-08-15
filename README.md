@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @1220031156 user name:NEKO.
 - 👀 I am interested in chatting with computers.
-- 🌱 I’m currently learning Kali_Linux、Java.
-- 💞️ I’m looking to collaborate on.I'm still learning.
+- 🌱 I’m currently learning.Kali_Linux、Java.
+- 💞️ I want to find a teacher.
 - 📫 How to reach me telegram:@PAWYL.
 
 <!---
